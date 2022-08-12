@@ -294,3 +294,8 @@ Five years is a long time. It is much slower than most of us would like. If you 
 "If you care too much about being praised, in the end you will not accomplish anything serious.
 ...
 Let the judgments of others be the consequence of your deeds, not their purpose." - Leo Tolstoy
+
+## A gift to myself 
+"Stop what you're doing. Close your eyes.
+
+For the next 60 seconds, just breathe."
