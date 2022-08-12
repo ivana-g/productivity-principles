@@ -199,3 +199,42 @@ This idea applies in many areas of life. You're not failing. You're just in the 
 20. The heart of a great company is filling it with [only] great people (pro tip: the bigger the dream the more important the team).
 21. Dream like a child yet operate like an adult.
 22. Think big yet start now. [Because you’re built to be legendary].
+
+## 37 life lessons 
+1. Don’t follow the herd.
+2. Work hard then enjoy life.
+3. Develop wonderful friendships.
+4. Be honest.
+5. Listen intently.
+6. Shine a light on people’s gifts.
+7. See rest as a productivity tool.
+8. Treat everyone with respect.
+9. Get better with age.
+10. Give your customers stunning goods.
+11. Spend a lot of time alone.
+12. Read for two hours a day.
+13. Move your body daily.
+14. Fast regularly.
+15. Lead without waiting to be asked to lead.
+16. Don’t coast.
+17. Sunbathe.
+18. Don’t listen to critics.
+19. Get up early.
+20. Exploit hardship for my growth.
+21. Be loyal.
+22. Don’t spend too much time online.
+23. Take a lot of pictures.
+24. Write in a journal each morning.
+25. Be the most generous person I know.
+26. Remember everyone alive will be dead.
+27. Listen to a lot of great music.
+28. Don’t confuse busy with productive.
+29. Don’t confuse living with progress.
+30. Go all in for love.
+31. Dress the way that makes me happy.
+32. Do work that promotes joy.
+33. Don’t compare.
+34. Celebrate my tiny triumphs.
+35. Protect my good name.
+36. Be gentle with Mother Earth.
+37. Be a good human.
