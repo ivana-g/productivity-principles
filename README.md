@@ -273,3 +273,6 @@ Life is a series of tradeoffs, and greater results usually require greater trade
 The question is not, "Do you want to be great at this?"
 
 The question is, "What are you willing to give up in order to be great at this?
+
+## Commitment 
+Until one is committed there is hesitancy, the chance to draw back, always inneffectivness. Concerning all acts of initiative and creation, there is one elementary truth the ignorance of which kills thousands of ideas and countless plans. 
