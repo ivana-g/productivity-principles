@@ -245,13 +245,19 @@ This idea applies in many areas of life. You're not failing. You're just in the 
 ## The connection between action and satisfaction
 "Look at a day when you are supremely satisfied at the end. It's not a day when you lounge around doing nothing; it's a day you've had everything to do and you've done it." - Margaret Thatcher src: Quoted in "As I Said to Denis: The Margaret Thatcher Book of Quotations"
 
+Formal education is not nearly as important as an unquenchable thirst to learn.
+
 ## Mental toughness
 Mental toughness is often portrayed as determination and persistence, but it can also be flexibility and adaptability.
 
-- I can be happy anywhere.
+ - I can be happy anywhere.
 
-- I can work with what I have.
+ - I can work with what I have.
 
-- I can have a good day with anyone.
+ - I can have a good day with anyone.
 
 **You are tough when your mood is not dependent on your conditions.**
+
+Nearly everything awesome takes longer than you think.
+
+  Get started and don't worry about the clock.
