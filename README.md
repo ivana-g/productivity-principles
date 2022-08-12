@@ -106,3 +106,12 @@ Happier.
 Develop my skills. Study my craft. Save some money. Build a network before I need it. Lay the ground work.
 
 The prepared person is positioned to benefit from unexpected opportunities.
+
+## The value of questions
+Is your reading and research supplementing your actions or substituting for them? 
+
+Research is useful until it becomes a form of procrastination.
+
+## Life rewards courage.
+
+The person who is brave enough to bet on something or someone—as long as they avoid irreversible mistakes like running out of cash or going to jail—is in a position to win.
