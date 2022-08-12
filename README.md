@@ -124,3 +124,54 @@ I signed the book deal for Atomic Habits in November 2015 and it was published i
 But after October 2018, it looked like a success. Same project. Different time when the outcome was measured.
 
 This idea applies in many areas of life. You're not failing. You're just in the middle of succeeding." - James Clear
+
+## 49 laws of monumental leadership
+1. They listen even better than they speak.
+2. They really care about growing people.
+3. They don’t mind giving away the credit.
+4. They understand that the bigger the dream the more important the team.
+5. They are generous.
+6. They are kind.
+7. They are unconquerably strong.
+8. They get that until their mission becomes their obsession, their business will never grow into a movement.
+9. They build excellent family lives, knowing that a fortified home base is essential to peak productivity and elite resilience at work.
+10. They are industry disrupters, enthusiastically bringing new products and services to their field that change the game.
+11. They have brave visions that cause others to call them weird, strange and crazy.
+12. They are monomaniacally focused on their big bet rather than interested in every shiny toy opportunity that comes along.
+13. They are honest—understanding that integrity is everything and that a 20 year good reputation could be lost in 20 seconds of poor judgement.
+14. They spend a lot of time alone because that’s where the most sensational ideas come from.
+15. They are extremely physically fit because weak health is a massive vulnerability.
+16. They are never too busy building the business to study their financials.
+17. They are brilliant at hiring top producers and this brilliance was born through the failed hiring of terrible producers.
+18. They are agile so when things get tough they swiftly pivot to not only survive but prosper.
+19. They understand that success breeds complacency and—because of this—they stay hungry, creative and hypervigilant to the threats that could knock off their golden crown.
+20. They build superb systems because systems ensure consistency of quality.
+21. They are monumentally productive by becoming masters of the polite [yet fierce] no.
+22. They are givers rather than takers.
+23. They rest a lot given that the key to domain dominant performances is regularly scheduled recovery periods.
+24. They care very little about the negative opinions of others because an opinion is just an opinion so why make it more than an opinion.
+25. They know that when everyone around them tells them that they are amazing they are in the dangerous situation where they just might start to think they are amazing.
+26. They read a ton of books. [And have huge libraries].
+27. They go to a lot of learning conferences. [And take a major amount of notes].
+28. They have supreme spiritual lives and have donated their lives to a cause that’s larger than themselves.
+29. When they get knocked down they get back up—constantly and relentlessly and quickly. Truly.
+30. They rise at dawn, gaining a gargantuan competitive advantage as well as a quiet hour to think, plan, prepare, exercise and pray.
+31. They eat less food so they get more done.
+32. They are constantly mentoring their people and championing the vision and values so that their teams constantly live the mission and exemplify the values.
+33. They have the courage to hire slowly and fire swiftly.
+34. They are on the path of mastery in their craft so they study the great ones and get a little better at what they do each and every day.
+35. They not only work to improve their Mindsets, they do the emotional healing required to purify their Heartsets so that the darker emotions of anger, shame, disappointment, regret, sadness and guilt leave them—allowing for maximum creativity, productivity, prosperity and human decency.
+36. They never take themselves too seriously, understanding that people who take themselves too seriously are not taken very seriously.
+37. They love winning. And are much more keen to construct a dynasty rather than simply secure a championship.
+38. They are humble and understand that masters always think like beginners.
+39. They are extraordinarily curious and, as a result, are regularly asking good questions as well as asking “why” a lot.
+40. They understand that if they are talking—in frustration—about a difficult employee to their spouse each evening, it’s a clear sign it’s time to (respectfully) let that teammate go.
+41. They lead without a title, deriving their power and organizational influence via their character, performance, results and optimism versus from the position they have on the organizational chart.
+42. They get that the team that breaks bread together is a team that stays together.
+43. They write in a journal often knowing that clarity breeds mastery and writing in a journal is thinking on paper.
+44. They are absolutely fanatical with getting the tiniest of details perfect.
+45. They build legendary cultures because competition can copy the products and services of your business but they will never be able to clone your soul.
+46. They smile a lot.
+47. They lean into the things that make them feel scared because greatness comes from the consistent doing of hard things and the discomfort of growth is always to be preferred over the illusion of safety.
+48. They make themselves more positive, strong, noble and good people daily knowing that their business will never rise higher than they do.
+49. They serve the world well.
