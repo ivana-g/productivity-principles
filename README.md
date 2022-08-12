@@ -241,3 +241,6 @@ This idea applies in many areas of life. You're not failing. You're just in the 
 
 ## Mistakes 
 "Regard yourself as a cloud, in the flesh, because you see, clouds never make mistakes. Did you ever see a cloud that was misshapen? Did you ever see a badly designed wave? No, they always do the right thing. But, if you will, treat yourself for a while as a cloud or a wave and realize that you can’t make a mistake whatever you do. Because even if you do something that appears totally disastrous, it will all come out in the wash somehow or another. Then through this capacity you will develop a kind of confidence. And through confidence you will be able to trust your own intuition." - Alan Watts
+
+## The connection between action and satisfaction
+"Look at a day when you are supremely satisfied at the end. It's not a day when you lounge around doing nothing; it's a day you've had everything to do and you've done it." - Margaret Thatcher src: Quoted in "As I Said to Denis: The Margaret Thatcher Book of Quotations"
