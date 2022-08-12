@@ -276,3 +276,10 @@ The question is, "What are you willing to give up in order to be great at this?
 
 ## Commitment 
 Until one is committed there is hesitancy, the chance to draw back, always inneffectivness. Concerning all acts of initiative and creation, there is one elementary truth the ignorance of which kills thousands of ideas and countless plans. 
+
+## Hard becomes easy and easy becomes hard
+By choosing hard projects and hard books to read and hard workouts to do and hard ambitions to pursue, the struggle will make you stronger, braver and better.This eventually makes for a happier, healthier and easier life.
+
+And in choosing a life of pleasure, trivial pursuits and lightness in all cases, the pain of your potential unrealized creates deep and lasting hardship.
+
+So when faced with a choice, always select the path of most resistance. It’ll make you great.
