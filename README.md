@@ -101,3 +101,8 @@ Magic.
 And a whole lot.
 
 Happier.
+
+## Lucky breaks 
+Develop my skills. Study my craft. Save some money. Build a network before I need it. Lay the ground work.
+
+The prepared person is positioned to benefit from unexpected opportunities.
