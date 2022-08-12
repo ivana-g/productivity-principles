@@ -175,3 +175,27 @@ This idea applies in many areas of life. You're not failing. You're just in the 
 47. They lean into the things that make them feel scared because greatness comes from the consistent doing of hard things and the discomfort of growth is always to be preferred over the illusion of safety.
 48. They make themselves more positive, strong, noble and good people daily knowing that their business will never rise higher than they do.
 49. They serve the world well.
+
+## 22 rules of life-long success
+1. Happiness follows helpfulness, not an obsession with becoming happy.
+2. The consistent doing of unpleasurable things brings us satisfaction.
+3. Spiritual peace causes us to revere worldly beauty.
+4. A super strong family foundation is the bedrock of the elite productivity that builds the pride that brings you peace. Oh—Dad just turned 85!
+5. Being out in the woods a lot refuels the energy that makes you great in society. Balance wilderness with worldliness and you've got it made.
+6. Wanting fewer things delivers much more happiness.
+7. Running your own race and being your own top champion makes the crowd respect, like and appreciate you.
+8. Silence makes you stronger.
+9. Rising early makes you wiser. [Remember that 5AM thing?]
+10. Being the most honest person you know makes you faster. (Because a clean conscience removes psychic drag).
+11. Being humble makes you bigger. [Ask Ali or Mandela or Rosa or Buffett].
+12. Sweating via intense exercise most mornings multiplies your income, energy and contribution. It just does.
+13. Worrying about your legacy takes your focus off the beautiful work that will build your legacy.
+14. Not playing with productivity apps will make you more productive.
+15. Your pre-sleep ritual is the key to your morning routine. Strange, right?
+16. Saying no to most opportunities allows you to say yes to the best ones.
+17. Liking yourself a lot is the driving force that causes you to respect and love others.
+18. Eat less food, get more done. [Read that thrice; please].
+19. Ignoring the trolls starves the trolls.
+20. The heart of a great company is filling it with [only] great people (pro tip: the bigger the dream the more important the team).
+21. Dream like a child yet operate like an adult.
+22. Think big yet start now. [Because you’re built to be legendary].
