@@ -38,4 +38,66 @@ Delete. The projects you don't take on, don't need to be finished.
 21. Have a strong and beautiful family life. It’s a peak source of great productivity, believe it or not.
 22. Treat other human beings with vast respect, politeness and goodness.
 
- 
+ ## A poem to be a happier human
+
+Why chase perfection when your joy loves progress?
+
+Why seek to be liked by the mass when too many within it don’t like themselves?
+
+Why aim to fit in when the game is to be a standout?
+
+Why wish for easier times when it’s the hard ones that make you strong?
+
+
+To turn trials into triumph.
+
+To make failure into fortune.
+
+To change wounds into wisdom. 
+
+To reform walls into windows.
+
+Such are the things that make humans.
+
+Happier.
+
+
+So as the hours of your life advance.
+
+As the months slip away.
+
+As the years become decades.
+
+As the clock ticks each day.
+
+
+Walk the earth gently.
+
+Care for the planet carefully.
+
+Honor your values ferociously.
+
+Protect your ambitions enthusiastically.
+
+Celebrate your friends passionately.
+
+Hold your family closely.
+
+Guard great health excellently.
+
+And be helpful to many, daily.
+
+
+Do this.
+
+And.
+
+You’ll.
+
+Become.
+
+Magic.
+
+And a whole lot.
+
+Happier.
