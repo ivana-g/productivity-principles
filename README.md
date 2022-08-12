@@ -261,3 +261,8 @@ Mental toughness is often portrayed as determination and persistence, but it can
 Nearly everything awesome takes longer than you think.
 
   Get started and don't worry about the clock.
+  
+## Financial advice from a grandmother 
+When you buy something cheap the best you'll feel about it is when you buy it. 
+
+When you buy something nice and expensive the worst you'll feel about it when you buy it.  
