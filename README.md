@@ -283,3 +283,9 @@ By choosing hard projects and hard books to read and hard workouts to do and har
 And in choosing a life of pleasure, trivial pursuits and lightness in all cases, the pain of your potential unrealized creates deep and lasting hardship.
 
 So when faced with a choice, always select the path of most resistance. It’ll make you great.
+
+## Accepting the reality of slow progress 
+- Before I try to increase my willpower, I need to try to decrease the friction in my environment.
+- Most big, deeply satisfying accomplishments in life take at least five years to achieve. This can include building a business, cultivating a loving relationship, writing a book, getting in the best shape of your life, raising a family, and more.
+
+Five years is a long time. It is much slower than most of us would like. If you accept the reality of slow progress, you have every reason to take action today. If you resist the reality of slow progress, five years from now you'll simply be five years older and still looking for a shortcut.
