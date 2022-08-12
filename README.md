@@ -266,3 +266,10 @@ Nearly everything awesome takes longer than you think.
 When you buy something cheap the best you'll feel about it is when you buy it. 
 
 When you buy something nice and expensive the worst you'll feel about it when you buy it.  
+
+## Tradeoffs 
+Life is a series of tradeoffs, and greater results usually require greater tradeoffs.
+
+The question is not, "Do you want to be great at this?"
+
+The question is, "What are you willing to give up in order to be great at this?
