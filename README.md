@@ -326,4 +326,8 @@ Warriors are loyal. To their team, to their family, to their society and to them
 
 Rising before the sun, training under brutal winter conditions, fiercely pushing past usual limits and being utterly strict with oneself serves soldiers well in battle. The virtue of self-discipline is one of the golden themes in every soaring life. And the Samurai exemplified it gorgeously.
 
+## Prioritization
+"When researching strategies, emphasize patterns over stories. One person succeeding means nothing. 100 people succeeding is a signal.
+
+When explaining strategies, emphasize stories over patterns. People forget numbers and charts. Everyone remembers a great story."
 
