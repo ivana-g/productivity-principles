@@ -3,6 +3,30 @@
 ## Content 
 
 [Child-like wonder](#child-like-wonder)
+[Optimizing work - eliminating tasks](#optimizing-work---eliminating-tasks)
+[The real secret of his magic was that he was an absolute master of staying focused on his mission](#The-real-secret-of-his-magic-was-that-he-was-an-absolute-master-of-staying-focused-on-his-mission)
+[A poem to be a happier human](#a-poem-to-be-a-happier-human)
+[Lucky breaks](#lucky-breaks)
+[The value of questions](#the-value-of-questions)
+[Life rewards courage](#life-rewards-courage)
+[The power of small acts](#the-power-of-small-acts)
+[49 laws of monumental leadership](#49-laws-of-monumental-leadership)
+[22 rules of life-long success](#22-rules-of-life-long-success)
+[37 life lessons](#37-life-lessons)
+[Mistakes](#mistakes)
+[The connection between action and satisfaction](#the-connection-between-action-and-satisfaction)
+[Mental toughness](#mental-toughness)
+[Financial advice from a grandmother](#financial-advice-from-a-grandmother)
+[Tradeoffs](#tradeoffs)
+[Committment](#committment)
+[Hard becomes easy and easy becomes hard](#hard-becomes-easy-and-easy-becomes-hard)
+[Accepting the reality of slow progress](#accepting-the-reality-of-slow-progress)
+[The opinion of others](#the-opinion-of-others)
+[A gift to myself](#a-gift-to-myself)
+[8 virtues of the samurai warrior](#8-virtues-of-the-samurai-warrior)
+[Prioritization](#prioritization)
+[Assume the best in others](#assume-the-best-in-others)
+[Savoring life](#savoring-life)
 
 ## Child-like wonder 
 "Almost everybody can stay excited for 2 or 3 months. A few people can stay excited for 2 or 3 years. But a winner can stay excited for 30 years or however long it takes to win." - Art Williams
@@ -116,7 +140,7 @@ Is your reading and research supplementing your actions or substituting for them
 
 Research is useful until it becomes a form of procrastination.
 
-## Life rewards courage.
+## Life rewards courage
 
 The person who is brave enough to bet on something or someone—as long as they avoid irreversible mistakes like running out of cash or going to jail—is in a position to win.
 
@@ -278,7 +302,7 @@ The question is not, "Do you want to be great at this?"
 
 The question is, "What are you willing to give up in order to be great at this?
 
-## Commitment 
+## Committment 
 Until one is committed there is hesitancy, the chance to draw back, always inneffectivness. Concerning all acts of initiative and creation, there is one elementary truth the ignorance of which kills thousands of ideas and countless plans. 
 
 ## Hard becomes easy and easy becomes hard
