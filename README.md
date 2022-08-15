@@ -301,30 +301,21 @@ Let the judgments of others be the consequence of your deeds, not their purpose.
 For the next 60 seconds, just breathe."
 
 ## 8 virtues of the samurai warrior
-1. Justice
+1. Justice. The samurai does what is fair. They will serve and protect their charges to the death. And will die when doing so is the just thing to do.
 
-The samurai does what is fair. They will serve and protect their charges to the death. And will die when doing so is the just thing to do.
-2. Courage
+2. Courage. To walk into danger in honour of their commitment to excellence, boldness and service is what real warriors do. To them, sitting on the sidelines is dangerous.
 
-To walk into danger in honour of their commitment to excellence, boldness and service is what real warriors do. To them, sitting on the sidelines is dangerous.
-3. Mercy
+3. Mercy. All great leaders have the ability to show forgiveness to the enemy and sympathy to someone in need. Samurai are masters of this character gift.
 
-All great leaders have the ability to show forgiveness to the enemy and sympathy to someone in need. Samurai are masters of this character gift.
-4. Politeness
+4. Politeness.To treat others with respect, keep promises and be on time is the mark of a major soldier. Being polite shows an appreciation for others. And upgrades their esteem of you.
 
-To treat others with respect, keep promises and be on time is the mark of a major soldier. Being polite shows an appreciation for others. And upgrades their esteem of you.
-5. Sincerity
+5. Sincerity. The samurai are not fake. They are candid and communicate honestly. What you see is who they are. This makes them powerful, influential and hard to beat.
 
-The samurai are not fake. They are candid and communicate honestly. What you see is who they are. This makes them powerful, influential and hard to beat.
-6. Honour
+6. Honour. To do what is right rather over what is easy and to follow the highest of values in the hardest of times speaks to being an honourable soul. Operating like this builds an indomitable character and confidence of steel.
 
-To do what is right rather over what is easy and to follow the highest of values in the hardest of times speaks to being an honourable soul. Operating like this builds an indomitable character and confidence of steel.
-7. Loyalty
+7. Loyalty. Warriors are loyal. To their team, to their family, to their society and to themselves.
 
-Warriors are loyal. To their team, to their family, to their society and to themselves.
-8. Self-Discipline
-
-Rising before the sun, training under brutal winter conditions, fiercely pushing past usual limits and being utterly strict with oneself serves soldiers well in battle. The virtue of self-discipline is one of the golden themes in every soaring life. And the Samurai exemplified it gorgeously.
+8. Self-Discipline. Rising before the sun, training under brutal winter conditions, fiercely pushing past usual limits and being utterly strict with oneself serves soldiers well in battle. The virtue of self-discipline is one of the golden themes in every soaring life. And the Samurai exemplified it gorgeously.
 
 ## Prioritization
 "When researching strategies, emphasize patterns over stories. One person succeeding means nothing. 100 people succeeding is a signal.
