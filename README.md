@@ -27,6 +27,7 @@
 23. [Prioritization](#prioritization)
 24. [Assume the best in others](#assume-the-best-in-others)
 25. [Savoring life](#savoring-life)
+26. [Top 10 performance habits](#top-10-performance-habits)
 
 ## Child-like wonder 
 "Almost everybody can stay excited for 2 or 3 months. A few people can stay excited for 2 or 3 years. But a winner can stay excited for 30 years or however long it takes to win." - Art Williams
@@ -367,5 +368,17 @@ When explaining strategies, emphasize stories over patterns. People forget numbe
   Position yourself to benefit from the external forces at hand and you will get more from the same unit of effort. Energy is conserved and results are multiplied.
 
 - Competence over credentials.
+
+## Top 10 performance habits
+1. The 5AM Club morning routine.
+2. The 5 Great Hours work method.
+3. Intermittent fasting.
+4. A nature walk/ride late afternoon.
+5. One hour of reading each evening.
+6. An epsom salt bath before sleep.
+7. Scheduling each week Sunday morning.
+8. Making a Not To Do List each quarter.
+9. Turning off my digital devices often.
+10. Meditation and prayer.
 
 
