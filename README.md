@@ -3,29 +3,53 @@
 ## Content 
 
 [Child-like wonder](#child-like-wonder)
+
 [Optimizing work - eliminating tasks](#optimizing-work---eliminating-tasks)
+
 [The real secret of his magic was that he was an absolute master of staying focused on his mission](#The-real-secret-of-his-magic-was-that-he-was-an-absolute-master-of-staying-focused-on-his-mission)
+
 [A poem to be a happier human](#a-poem-to-be-a-happier-human)
+
 [Lucky breaks](#lucky-breaks)
+
 [The value of questions](#the-value-of-questions)
+
 [Life rewards courage](#life-rewards-courage)
+
 [The power of small acts](#the-power-of-small-acts)
+
 [49 laws of monumental leadership](#49-laws-of-monumental-leadership)
+
 [22 rules of life-long success](#22-rules-of-life-long-success)
+
 [37 life lessons](#37-life-lessons)
+
 [Mistakes](#mistakes)
+
 [The connection between action and satisfaction](#the-connection-between-action-and-satisfaction)
+
 [Mental toughness](#mental-toughness)
+
 [Financial advice from a grandmother](#financial-advice-from-a-grandmother)
+
 [Tradeoffs](#tradeoffs)
+
 [Committment](#committment)
+
 [Hard becomes easy and easy becomes hard](#hard-becomes-easy-and-easy-becomes-hard)
+
 [Accepting the reality of slow progress](#accepting-the-reality-of-slow-progress)
+
 [The opinion of others](#the-opinion-of-others)
+
 [A gift to myself](#a-gift-to-myself)
+
 [8 virtues of the samurai warrior](#8-virtues-of-the-samurai-warrior)
+
 [Prioritization](#prioritization)
+
 [Assume the best in others](#assume-the-best-in-others)
+
 [Savoring life](#savoring-life)
 
 ## Child-like wonder 
