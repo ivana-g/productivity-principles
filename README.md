@@ -146,13 +146,15 @@ Research is useful until it becomes a form of procrastination.
 The person who is brave enough to bet on something or someone—as long as they avoid irreversible mistakes like running out of cash or going to jail—is in a position to win.
 
 ## The power of small acts
-"Whether or not something is deemed a "failure" is dependent on when performance is measured.
+- "Whether or not something is deemed a "failure" is dependent on when performance is measured.
 
-I signed the book deal for Atomic Habits in November 2015 and it was published in October 2018. If you were to measure the performance of the book at any point during those three years, the project would have been deemed a failure. In January 2016? It was incomplete. A failure. In August 2017? Still unfinished. A failure. In February 2018? Again, a failure.
+  I signed the book deal for Atomic Habits in November 2015 and it was published in October 2018. If you were to measure the performance of the book at any   point during those three years, the project would have been deemed a failure. In January 2016? It was incomplete. A failure. In August 2017? Still        unfinished. A failure. In February 2018? Again, a failure.
 
-But after October 2018, it looked like a success. Same project. Different time when the outcome was measured.
+  But after October 2018, it looked like a success. Same project. Different time when the outcome was measured.
 
-This idea applies in many areas of life. You're not failing. You're just in the middle of succeeding." - James Clear
+  This idea applies in many areas of life. You're not failing. You're just in the middle of succeeding." - James Clear
+
+- Time will multiply whatever you feed it. Good habits make time your ally. Bad habits make time your enemy.
 
 ## 49 laws of monumental leadership
 1. They listen even better than they speak.
