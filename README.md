@@ -291,6 +291,9 @@ Nearly everything awesome takes longer than you think.
 
   Get started and don't worry about the clock.
   
+- A human being is born into stunning promise. We incarnate with staggering potential. We are hardwired into a higher destiny.
+  Then, after birth, most of us receive damaging programming. We are taught to fear, lack, doubt and smother our gifts, hopes and dreams.
+  
 ## Financial advice from a grandmother 
 When you buy something cheap the best you'll feel about it is when you buy it. 
 
