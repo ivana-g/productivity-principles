@@ -28,6 +28,7 @@
 24. [Assume the best in others](#assume-the-best-in-others)
 25. [Savoring life](#savoring-life)
 26. [Top 10 performance habits](#top-10-performance-habits)
+27. [Inspiration] (#inspiration)
 
 ## Child-like wonder 
 "Almost everybody can stay excited for 2 or 3 months. A few people can stay excited for 2 or 3 years. But a winner can stay excited for 30 years or however long it takes to win." - Art Williams
@@ -385,5 +386,19 @@ When explaining strategies, emphasize stories over patterns. People forget numbe
 8. Making a Not To Do List each quarter.
 9. Turning off my digital devices often.
 10. Meditation and prayer.
+
+## Inspiration
+"The hard way is rarely harder in terms of daily effort, but it is often harder psychologically.
+
+It requires:
+
+- thinking long-term
+- removing limiting beliefs
+- avoiding the lure of status and approval
+- trusting that small things will lead to big things
+
+It’s a mental battle."
+
+
 
 
