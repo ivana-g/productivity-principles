@@ -28,7 +28,7 @@
 24. [Assume the best in others](#assume-the-best-in-others)
 25. [Savoring life](#savoring-life)
 26. [Top 10 performance habits](#top-10-performance-habits)
-27. [Inspiration] (#inspiration)
+27. [Inspiration] (#Inspiration)
 
 ## Child-like wonder 
 "Almost everybody can stay excited for 2 or 3 months. A few people can stay excited for 2 or 3 years. But a winner can stay excited for 30 years or however long it takes to win." - Art Williams
